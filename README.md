@@ -1,4 +1,4 @@
-<h2>  [翻译] And if She Leads </h2>
+<h2>  [翻译][Altmar] And if She Leads </h2>
 <h4> curiositykilled </h4>
 <h4> Translation by AlllltheFish </h4>
 <hr />
